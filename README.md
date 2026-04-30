@@ -1,1 +1,0 @@
-# Tinmorry-Bambu_BambuStudio
